@@ -45,7 +45,7 @@
 
 
 **Контакты:**  
-📞 +7 905 596 8187  
+
 ✉️ Telegram: [@uneevenisasnowdrop](https://t.me/uneevenisasnowdrop)  
 💻 GitHub: [github.com/Speedhunte](https://github.com/Speedhunte)
 
